@@ -7,4 +7,4 @@ Senuthmi
 Senuthmi
 
 
-10
+Both did same task Senuthmi
